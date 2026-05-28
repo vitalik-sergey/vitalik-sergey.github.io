@@ -1,1 +1,0 @@
-# vitalik-sergey.github.io
